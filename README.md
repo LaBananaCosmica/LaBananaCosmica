@@ -9,7 +9,7 @@
 
 - 📫 How to reach me **seriojuantroce22@gmail.com**
 
-<h3 align="left">Connect with me:</h3>
+<h3 align="left">Connect with me:**https://www.linkedin.com/in/juan-josé-hernandez-salazar-61a537233/**</h3>
 <p align="left">
 </p>
 
